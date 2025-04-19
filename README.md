@@ -1,1 +1,0 @@
-# Aln-Ashtn-and-taking-my-energy-I-m-prosecuting-and-I-have-without-reasonable-doubt.
